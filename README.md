@@ -2,7 +2,7 @@
 - 👀 I’m interested in wen development and design
 - 🌱 I’m currently learning web developing and design
 - 💞️ I’m looking to collaborate on many webs
-- 📫 How to reach me appiahasantewaa@gmail.com 
+- 📫 How to reach me appiahasantewaa7@gmail.com 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
